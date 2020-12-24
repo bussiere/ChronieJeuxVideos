@@ -95,4 +95,28 @@ PT (terreur kojima)
 Dead Rising
 Left for dead
 Team Fortress
+Borderland
+Fortnite
+league of legend
+Heartstone
+Mortal Kombat
+Sonic
+Lemmings
+Worms
+Luacs art
+King Quest
+Larry Laffer
+Starfox
+Benjo kazooi
+Crash Bandicot
+JEt set radio
+Halo 
+Garry s mod
+Portal 
+Half life
+Pong
+Space Invader 
+ET
+Gone Home
+Candy Crush 
 
